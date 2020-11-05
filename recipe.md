@@ -1,0 +1,1 @@
+get an egg. crack it on to a frying pan, keeping it as round as you can. turn up the cooker and flatten out the yoke while also flipping it with a spatula. also put some pepper while it is being cooked to get a more flavoring taste.

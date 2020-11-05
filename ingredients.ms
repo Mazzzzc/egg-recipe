@@ -1,0 +1,1 @@
+ingredients only include an egg and some pepper. materials needed include a frying pan and spatula.
